@@ -39,7 +39,7 @@
 
 <p>We offer a bundle pack that includes Linux Foundation LFCS exam questions in PDF format and the exam practice test software (desktop and web-based) in one value pack. Not only that, we want you to get the best product at an affordable price. You can use the coupon code “SAVE50” and get an exclusive discount of 50% right now.</p>
 
-<h2><strong>Get Linux Foundation LFCS Certified</strong></h2>
+<h2><strong>Ace Linux Foundation LINUX FOUNDATION CERTIFIED SYSTEM ADMINISTRATOR Exam</strong></h2>
 
 <p>The Study4exam Linux Foundation LFCS exam questions are super smooth to use for all types of pupils, including the newer ones. It has particularly affordable rates as compared to the expensive LFCS  LFCS exam preparatory courses. By completely availing of the Study4exam LFCS questions, you can efficiently clear the Linux Foundation Certified SYSADMIN exam in the first attempt.<br />
  </p>
